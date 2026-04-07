@@ -1,2 +1,2 @@
 # D0minioDigital-Dominiodigital
-Dominamos tú estilo
+Dominamos tú estilo PUTO
